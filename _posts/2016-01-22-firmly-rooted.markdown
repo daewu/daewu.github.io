@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 title: Firmly Rooted
 layout: post
 ---
@@ -11,4 +11,4 @@ The sin is firmly rooted, or maybe even deeply rooted. It's so deep and I did su
 
 I imagine cutting weeds of my sin and my shame off, it looks much better, looks like its gone, but it's still there. Sin can be so deeply rooted that it can effect the soil. I think the soil is tainted, I needed to completely start over. I need to redo the soil and start planting these holy seeds because that is the only way I can gave success under Jesus. I believe sin is so strong that even if you uproot the weed, if the soil is bad, planting holy seeds might not even work. The soil has to be good, the sun has to be there, there has to be rain. It takes a lot to grow a plant. 
 
-I knew all of these analogies before but I never knew it could get out of hand. How it can affect every part of my life, until it did. I was in a very low and depressed state of mind, but I didn't know I was. The anger and the pain took over and I didn't know what to do. I closed off people in my life. There was so much negative thoughts in my  mind. 
+I knew all of these analogies before but I never knew it could get out of hand. How it can affect every part of my life, until it did. I was in a very low and depressed state of mind, but I didn't know I was. The anger and the pain took over and I didn't know what to do. I closed off people in my life. There was so much negative thoughts in my  mind.

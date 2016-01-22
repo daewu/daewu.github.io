@@ -1,5 +1,5 @@
 ---
 published: false
-title: Bible Literacy - Tim Mackie
+title: Tim Mackie - Bible Literacy Pt 1
 layout: post
 ---

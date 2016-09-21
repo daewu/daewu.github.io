@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 title: 9-20-16
 layout: post
 ---
